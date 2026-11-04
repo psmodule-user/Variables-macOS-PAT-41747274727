@@ -1,0 +1,1 @@
+# Variables-macOS-PAT-41747274727
